@@ -1,1 +1,1 @@
-# yogapropsshop.github.io
+# yoga props shop
